@@ -19,5 +19,5 @@ Sorularınız için bana [durmusozgul66@gmail.com](durmusozgul66@gmail.com) adre
 
 ## Destek
 
-Sorunlarınızı [Sorunlar](www.linkedin.com/in/durmuş-özgül-a07088244) bölümünden bildirebilirsiniz.
+Sorunlarınızı [www.linkedin.com/in/durmuş-özgül-a07088244](www.linkedin.com/in/durmuş-özgül-a07088244) bölümünden bildirebilirsiniz.
 # Greenade
